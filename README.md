@@ -5,6 +5,7 @@ Field Engineer 4 | Instrutor de TI | Desenvolvedor Web
 📧 danrhy@gmail.com
 
 🔗 LinkedIn
+
 br.linkedin.com/pub/daniel-anjos/82/66a/458
 
 🧭 Sobre mim
