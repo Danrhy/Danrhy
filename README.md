@@ -19,7 +19,7 @@ Tenho perfil dinâmico e colaborativo, sempre buscando novos desafios e oportuni
 
 Senai SP (2025 - Atual)
 Intrutor Profissional III
-Instrutor Profissional III com experiência no ensino de Análise e Desenvolvimento de Sistemas para alunos do ensino médio em cursos técnicos. Atuante na formação de novos profissionais de tecnologia, com foco em desenvolvimento de habilidades práticas e teóricas em programação, lógica, banco de dados e tecnologias de software. Apaixonado por ensinar, compartilhar conhecimento e acompanhar o desenvolvimento dos alunos, promovendo um aprendizado dinâmico, colaborativo e orientado a projetos.
+Experiência no ensino de Análise e Desenvolvimento de Sistemas para alunos do ensino médio em cursos técnicos. Atuante na formação de novos profissionais de tecnologia, com foco em desenvolvimento de habilidades práticas e teóricas em programação, lógica, banco de dados e tecnologias de software. Apaixonado por ensinar, compartilhar conhecimento e acompanhar o desenvolvimento dos alunos, promovendo um aprendizado dinâmico, colaborativo e orientado a projetos.
 
 
 Unisys do Brasil (2021 - 2025)
